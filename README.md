@@ -1,1 +1,3 @@
-I LOVE COOL APP THE MOST
+Slightly mad
+
+Slightly austistic
