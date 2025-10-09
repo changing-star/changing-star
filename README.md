@@ -1,3 +1,3 @@
 Slightly mad
 
-Slightly austistic
+Slightly autistic
