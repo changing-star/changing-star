@@ -1,4 +1,4 @@
-# The Most Mediocre Of All Time 
+# The Most Mediocre Programmer Of All Time 
 
 Slightly mad, Slightly autistic
 
