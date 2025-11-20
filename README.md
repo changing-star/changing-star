@@ -1,3 +1,3 @@
-Slightly mad
+Slightly mad, Slightly autistic
 
-Slightly autistic
+Imagine if there were 7 of you, how would your senses feel like!
